@@ -1,2 +1,2 @@
 # NOWE-LEPSZE-JUTRO
-powered by Kacper Kawecki & Daniel Kulik & Eryk Janus
+powered by Agent PP & Kacper Kawecki & Daniel Kulik & Eryk Janus
